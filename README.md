@@ -10,7 +10,7 @@
 
 ## Sobre mi
 
-- ⭐ Github Star ⭐ 
+- ⭐ T A M I ⭐ 
 - 💻 Web developer
 - Creador de reciplanet ♻
 - Aprovecho el tiempo haciendo historia ⏳
